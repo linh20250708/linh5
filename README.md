@@ -10,4 +10,4 @@
 
 本站网罗欧美日韩精品视频资源，涵盖多种热门题材，持续更新不间断。播放流畅清晰，支持手机、平板和电脑等多平台观看，致力打造无广告的纯净观影环境，让您随时随地畅享视界精彩。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/linh20250708/linh5 ）</span>
